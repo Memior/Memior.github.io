@@ -1,4 +1,4 @@
-![logo](4f9fdd2787ddc1952e5708899a578fb8.jpeg)
+![logo](/_media/4f9fdd2787ddc1952e5708899a578fb8.jpeg)
 
 # 小傅哥
 
